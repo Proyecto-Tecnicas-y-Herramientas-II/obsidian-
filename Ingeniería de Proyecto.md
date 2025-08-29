@@ -1,0 +1,1 @@
+Diseño de todas las instalaciones, equipamientos, cantidad de personal y cosas que precisamos para lo que vamos a vender

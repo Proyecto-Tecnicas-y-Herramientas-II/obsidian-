@@ -1,0 +1,3 @@
+Mercator
+Cónico
+Cilíndrico
